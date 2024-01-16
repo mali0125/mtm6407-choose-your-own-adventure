@@ -4,4 +4,4 @@ It is a warm summer day and Joe is watering the plants in his lawn. He lives in 
 
 ## Hide and Observe
 
-[A] (./choicea) - Joe hides behind a nearby tree and watches the figure from a safe distance to gather more information
+[A](choicea.md) - Joe hides behind a nearby tree and watches the figure from a safe distance to gather more information
