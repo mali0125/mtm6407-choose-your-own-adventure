@@ -1,5 +1,4 @@
 # A Walk in the Forest
 
 As his heart races with a mix of fear and curiosity, Joe quickly decides that the best course of action is to stay hidden while observing the shadowy figure. He swiftly moves behind a large, gnarled oak tree, its trunk wide enough to conceal his presence. Peering out cautiously, he keeps his movements minimal to avoid drawing attention.
-
 From his vantage point, Joe watches the figure intently. It seems to be moving slowly, almost cautiously, as if it too is aware of a possible presence nearby. The figure's movements are oddly graceful, yet shrouded in an air of mystery. Joe can't shake off the feeling that there's something unusual about this figure, something he can't quite put his finger on.
