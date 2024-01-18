@@ -1,0 +1,3 @@
+## Run back home
+
+Terrified, Joe decides to backtrack and head home, feeling a lingering sense of unease. However, as he retraces his steps, the shadowy figure seems to be following him. Joe quickens his pace, and the mysterious pursuit turns into a playful game of hide-and-seek. Back home, he locks the doors and windows but can't shake the feeling of being watched. Through the window, he repeatedly catches sight of the mysterious silhouette, which becomes a silent companion, revealing itself only in the shadows.
